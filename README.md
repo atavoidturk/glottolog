@@ -1,1 +1,1 @@
-Rip Kikongo
+Rip Loange-Atlantic
